@@ -51,3 +51,5 @@
 
 
 ## OUTPUT:
+![Blue and Yellow Modern 5 Tips for Successful Life Infographic_page-0001](https://github.com/user-attachments/assets/07a2bf24-1f87-4e27-953e-713637352135)
+
